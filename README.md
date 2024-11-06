@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in yandex.liceum
 - 💞️ I’m looking to collaborate on programirovanie
 - 📫 How to reach me (TeleGram)@niketooss
-- 😄 Pronouns: not tolerant
+- 😄 Pronouns: ???
 - ⚡ Fun fact: В России производят столько лапши, что ее хватает вешать вам на уши
 
 <!---
